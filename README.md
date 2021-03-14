@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ChamaliBasnayake
+- 👀 I’m interested in Cyber Security and Software Engineering
+- 🌱 I’m currently learning @ Uva Wellassa University, Sri Lanka and Platform Automation intern @ Pearson Lanka (Pvt). Ltd
+- 💞️ I’m looking to collaborate on Industrial Projects and learn under industry experts
+- 📫 Reach me via LinkedIn https://www.linkedin.com/in/chamalibasnayake/
